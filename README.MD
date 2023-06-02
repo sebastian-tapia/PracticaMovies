@@ -1,5 +1,5 @@
 ## PROYECTO MOVIES
 ## Sebastian
 ## luciana 
-## axel 
+## axel 25, buenos aires
 ## andony
